@@ -1,1 +1,0 @@
-# mykntom.github.io
